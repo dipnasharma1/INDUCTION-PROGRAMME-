@@ -83,4 +83,4 @@ i enjoyed my first day.
   -in start we listen gurbani kirtan performed by our seniors NSS candidates.it was peaceful.
   -we played games .later our seniors performed a skit which was very entertaining and meaningful.
 
-  # these our starting 6days induction programme and i enjoyed it and lear new things.
+  # these our starting 6days of induction programme and i enjoyed it and learn new things.
