@@ -74,4 +74,13 @@ i enjoyed my first day.
  #    DAY-6(7-8-2025)
 
 
-Dr.Lakhvir khanna 
+1.Dr.Lakhvir Singh Khanna (incharge -CML)
+    - sir introduce us about CML centre and encourage us to join CML(centre for modern learning).
+    -also inform us about NPTEL(National Programme on Technology Enchanced Learning)
+    where we can enroll in additional online courses in free .
+
+2.Dr.Jasvir Singh Grewal (Incharge-NSS)
+  -in start we listen gurbani kirtan performed by our seniors NSS candidates.it was peaceful.
+  -we played games .later our seniors performed a skit which was very entertaining and meaningful.
+
+  # these our starting 6days induction programme and i enjoyed it and lear new things.
