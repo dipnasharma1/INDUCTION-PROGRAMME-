@@ -57,15 +57,18 @@ i enjoyed my first day.
    
 
    1.Dr.Parminder Singh (Dean of students welfare )
-   -  give us detailed information about the college infrastructure,canteens, hostels ,mess services,sports , scholarship etc in detail .         2.Mr.Manpreet singh (Fitness coach)
+   -  give us detailed information about the college infrastructure,canteens, hostels ,mess services,sports , scholarship etc in detail .
+   -              2.Mr.Manpreet singh (Fitness coach)
   -  due to long study hours and screen time engineers neglect there health.
   -  simple excercise like walking, running,yoga,or gym can improve our lifestyle.
   -   he aware us that SAY NO TO DRUGS beer can harm our body , health and career.
+
+    
  3.bgr. P.S.cheema sir
-    -  he inspired student about there stage of life .he connected discipline with army life
-    -   encouraged students to study hard stay focused on their goals .
-     -  he inspired everyone to serve there nation and make our family proud.
-     -  he also recited motivational sayaris , which inspired everyone and connected emotionaly with students.
+    -    he inspired student about there stage of life .he connected discipline with army life
+-   encouraged students to study hard stay focused on their goals .
+  -    he inspired everyone to serve there nation and make our family proud.
+     -    he also recited motivational sayaris , which inspired everyone and connected emotionaly with students.
 
 
  #    DAY-6(7-8-2025)
