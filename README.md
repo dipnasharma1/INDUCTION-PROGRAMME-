@@ -11,7 +11,16 @@ principle Dr.Sehjpal singh and our honorable chief guest S.maheshinder singh gre
 
 i enjoyed my first day.
 
-#DAY-2(1-8-2025)
+# DAY-2(1-8-2025)
 
 
+1. Lecture on universal human values (UHV)
+       teacher discuss about our life concepts such as:
+   -Right understanding
+   -Physical facilities
+   -Relationships
+   - How to balance our meaningful life
+2. Arvind dhingra sir
+     -give us information about college committee currently 
+   
 
