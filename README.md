@@ -16,11 +16,18 @@ i enjoyed my first day.
 
 1. Lecture on universal human values (UHV)
        teacher discuss about our life concepts such as:
-   -Right understanding
-   -Physical facilities
-   -Relationships
-   - How to balance our meaningful life
+   . -Right understanding
+   . -Physical facilities
+   . -Relationships
+  . - How to balance our meaningful life
 2. Arvind dhingra sir
-     -give us information about college committee currently 
-   
+     -give us information about college committee currently running in college.
+   -played games e.g.mirror game 3.BREAK.                           
+4.english and maths proficiency test.
+
+  # DAY-3 (4-8-2025)
+
+
+  1.Causmic club 
+  
 
